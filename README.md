@@ -28,4 +28,3 @@ Hear us Piranha Plants go
 As the march of the Piranha Plants bear fruit!
 Let's holler and hoot!
 Wow!
-https://lyricstranslate.com
